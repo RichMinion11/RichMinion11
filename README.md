@@ -2,6 +2,8 @@
 
 Student at NTI nacka gymnasiet in Sweden.
 
+My pronouns: Top/G
+
 
 
 <!--
